@@ -1,5 +1,12 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-17 21:49 (IR Time)
+- 📥 [B.Ad.T.L.W.A.E.S01E08.Dual.720p.10bit.WEBRip.2CH.x265.PSA.AD.z01](https://github.com/amir5485/sandbox/raw/main/dl/B.Ad.T.L.W.A.E.S01E08.Dual.720p.10bit.WEBRip.2CH.x265.PSA.AD.z01) `95.00 MB`
+- 📥 [B.Ad.T.L.W.A.E.S01E08.Dual.720p.10bit.WEBRip.2CH.x265.PSA.AD.z02](https://github.com/amir5485/sandbox/raw/main/dl/B.Ad.T.L.W.A.E.S01E08.Dual.720p.10bit.WEBRip.2CH.x265.PSA.AD.z02) `95.00 MB`
+- 📥 [B.Ad.T.L.W.A.E.S01E08.Dual.720p.10bit.WEBRip.2CH.x265.PSA.AD.z03](https://github.com/amir5485/sandbox/raw/main/dl/B.Ad.T.L.W.A.E.S01E08.Dual.720p.10bit.WEBRip.2CH.x265.PSA.AD.z03) `95.00 MB`
+- 📥 [B.Ad.T.L.W.A.E.S01E08.Dual.720p.10bit.WEBRip.2CH.x265.PSA.AD.z04](https://github.com/amir5485/sandbox/raw/main/dl/B.Ad.T.L.W.A.E.S01E08.Dual.720p.10bit.WEBRip.2CH.x265.PSA.AD.z04) `95.00 MB`
+- 🗜️ [B.Ad.T.L.W.A.E.S01E08.Dual.720p.10bit.WEBRip.2CH.x265.PSA.AD.zip](https://github.com/amir5485/sandbox/raw/main/dl/B.Ad.T.L.W.A.E.S01E08.Dual.720p.10bit.WEBRip.2CH.x265.PSA.AD.zip) `79.65 MB`
+
 ### 📅 2026-05-17 21:47 (IR Time)
 - 📥 [B.Ad.T.L.W.A.E.S01E07.Dual.720p.10bit.WEBRip.2CH.x265.PSA.AD.z01](https://github.com/amir5485/sandbox/raw/main/dl/B.Ad.T.L.W.A.E.S01E07.Dual.720p.10bit.WEBRip.2CH.x265.PSA.AD.z01) `95.00 MB`
 - 📥 [B.Ad.T.L.W.A.E.S01E07.Dual.720p.10bit.WEBRip.2CH.x265.PSA.AD.z02](https://github.com/amir5485/sandbox/raw/main/dl/B.Ad.T.L.W.A.E.S01E07.Dual.720p.10bit.WEBRip.2CH.x265.PSA.AD.z02) `95.00 MB`
